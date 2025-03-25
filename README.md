@@ -6,7 +6,7 @@
 # 最低0.5$/月，香的很啊
 # 新用户注册就送100G流量不限速
 # 支持 Windows、MAC、iOS、Android
-# 注册下载  [https://ads.yydsnode.com](https://ads.hsjiasuqi.com)
+# 注册下载 https://ads.hsjiasuqi.com
 # ✈️  https://t.me/freejsq
 # 8年老品牌高端机场代理,
  ## 1.秒刷fb,ins，youtube，推特等
